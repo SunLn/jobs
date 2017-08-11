@@ -32,7 +32,7 @@
 
 能力要求：
 * 说服小李穿女装，能说服穿泳装，领导更满意
-* 其他的以领导说的为准（需要加链接到官网)[https://www.bmqb.com/jobs]
+* 其他的以 [领导说的](https://www.bmqb.com/jobs) 为准
 
 
 写到此处，楼主自我感觉最后一句最赞了。于是甩稿给领导，领导说，小王，你还木有介绍我们是谁呀。
@@ -47,7 +47,7 @@
 
 工作很忙，偶尔会斗斗图，做做表情包。中午吃完饭会一起开黑打农药，但三个钻石同事已经把白银的楼主给T掉了…
 
-![youshang](http://7j1zwh.com1.z0.glb.clouddn.com/cry.jpg)
+![youshang](http://7j1zwh.com1.z0.glb.clouddn.com/cry2.jpg)
 
 没有考勤，地处魔都1号线衡山路地铁站，上班方便。
 
@@ -90,8 +90,9 @@
 
 ![开窗](http://7j1zwh.com1.z0.glb.clouddn.com/%E5%BC%80%E7%AA%97.png)
 
-最后，求善良的童靴，从了她。hr@bmqb.com 。
+求善良的童靴，从了她。hr@bmqb.com 。
 
 ![从了它](http://7j1zwh.com1.z0.glb.clouddn.com/%E6%9D%A5%E5%98%9B.jpeg)
 
+最后的最后，[领导说的都是对的](https://www.bmqb.com/jobs)
 
